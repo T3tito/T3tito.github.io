@@ -1,1 +1,2 @@
-# t3tito.github.io
+# T3tito.github.io
+CV Cruso Ticmas 
